@@ -7,5 +7,5 @@ What sets me apart is my keen interest in communication. I enjoy collaborating w
 When I'm not coding, you can find me reading a book or playing table tennis. I believe that a well-rounded perspective is essential to being an effective communicator and problem solver.
 
 ### Connect with me 
-LinkedIn: https://www.linkedin.com/in/vidhi-thakur-9353271a8/
+LinkedIn: https://www.linkedin.com/in/vidhi-thakur-9353271a8/ </br>
 Mail: thakurvidhi997@gmail.com
