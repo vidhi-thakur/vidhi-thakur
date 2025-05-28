@@ -6,5 +6,5 @@ Outside of development, I explore AI tools, practice DSA, and enjoy learning thi
 
 ### Connect with me 
 LinkedIn: https://www.linkedin.com/in/vidhi-thakur-9353271a8/ </br>
-Mail: thakurvidhi997@gmail.com
+Mail: thakurvidhi997@gmail.com </br>
 Portfolio: https://vidhi-thakur-portfolio-showcase.lovable.app/
